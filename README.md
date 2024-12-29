@@ -47,7 +47,8 @@
 
 ## Output:
 
-![image](https://github.com/user-attachments/assets/518d6849-7a9d-4cff-b9c8-83638465456e)
+![image](https://github.com/user-attachments/assets/4a5abbd1-3975-4781-86f2-7d471968cfac)
+
 
 
 ### Name:JOTHIMANI P
